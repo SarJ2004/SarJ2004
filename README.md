@@ -1,4 +1,5 @@
-![MasterHead](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fgifs%2Ffunimation-computer-l3vRmVv5P01I5NDAA&psig=AOvVaw16RQEgRHuVJsUOdHEYLwIe&ust=1694972544104000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCOjQ7PTWr4EDFQAAAAAdAAAAABBv)
+![cowboybebop](https://github.com/SarJ2004/SarJ2004/assets/99111773/ac256d65-db76-4c4e-89df-ebd5a9bf761a)
+
 
 # 💫 About Me:
 🫴Whatever happens, happens.
