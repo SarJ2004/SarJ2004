@@ -1,4 +1,4 @@
-![cowboybebop](https://github.com/SarJ2004/SarJ2004/assets/99111773/ac256d65-db76-4c4e-89df-ebd5a9bf761a)
+<p align="center">![cowboybebop](https://github.com/SarJ2004/SarJ2004/assets/99111773/ac256d65-db76-4c4e-89df-ebd5a9bf761a)</p>
 
 
 # 💫 About Me:
