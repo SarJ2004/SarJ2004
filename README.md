@@ -4,7 +4,7 @@
 </p>
 
 # 💫 About Me:
-🫴Whatever happens, happens.
+🫴Whatever happens, happens
 
 
 ## 🌐 Socials:
