@@ -96,11 +96,6 @@
   <img src="https://streak-stats.demolab.com?user=SarJ2004&locale=en&mode=weekly&theme=tokyonight&hide_border=true&border_radius=5&order=3" height="150" alt="streak graph"  />
 </div>
 
-###
-
-<img src="https://raw.githubusercontent.com/SarJ2004/SarJ2004/output/snake.svg" alt="Snake animation" />
-
-###
 
 <div align="center">
   <a href="https://open.spotify.com/user/vdqbv3uaz8vs3iv9qqhto3ks7">
